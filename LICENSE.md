@@ -1,4 +1,4 @@
-
+Experience ultimate mining tycoon like never before with ultimate mining tycoon Scripts stealth, the #1 Script. Includes auto-upgrade and private
 
 
 
